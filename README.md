@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **dsomnath627@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1k_F18uR6p456M0WCsW_ULgvfbusGDsUB/view?usp=sharing](https://drive.google.com/file/d/1k_F18uR6p456M0WCsW_ULgvfbusGDsUB/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1k_F18uR6p456M0WCsW_ULgvfbusGDsUB/view?usp=sharing](https://drive.google.com/file/d/1k_F18uR6p456M0WCsW_ULgvfbusGDsUB/view?usp=sharing)](https://drive.google.com/file/d/1S7syG-QCX2cF2ykxfXjVMZCYZRiJWrfx/view?usp=drive_link)
 
 - ⚡ Fun fact **I am funny☺️☺️**
 
